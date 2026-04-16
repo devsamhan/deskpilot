@@ -1,3 +1,4 @@
+<img width="1913" height="996" alt="لقطة شاشة 2026-04-16 074533" src="https://github.com/user-attachments/assets/d273c1d1-1791-4d34-a2f5-552e77f0601e" />
 
 🧠 **DeskPilot — مساعدك الشخصي لتنظيم ملفاتك وحياتك الرقمية**
 
