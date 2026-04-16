@@ -1,4 +1,3 @@
-https://res.cloudinary.com/dihttqnvs/image/upload/q_auto/f_auto/v1776315040/%D9%84%D9%82%D8%B7%D8%A9_%D8%B4%D8%A7%D8%B4%D8%A9_2026-04-16_074533_c1rrxw.png
 
 🧠 **DeskPilot — مساعدك الشخصي لتنظيم ملفاتك وحياتك الرقمية**
 
